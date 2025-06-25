@@ -24,11 +24,11 @@ By day, I'm diving into cybersecurity and tech. By night, I'm building emotional
 - I’m a dog dad 
 - I thrive in emotionally heavy writing, with a healthy dose of dry humor
 - My superpower would be multitasking snark and sincerity
-- Writing saved me — now I try to return the favor
+- Writing saved me, and now I try to return the favor
 
 ##  How to Reach Me
 
-Feel free to connect or collaborate — whether you’re into code, comics, or catharsis.
+Feel free to connect or collaborate, whether you’re into code, comics, or catharsis.
 
 - dputnam907@gmail.com
 - www.linkedin.com/in/dylan-putnam-9a4a55111
